@@ -1,1 +1,0 @@
-# sevensvitt.github.io
